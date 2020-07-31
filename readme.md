@@ -7,14 +7,14 @@ also like to welcome Kian to our home for the first time.
 
 ### Welcome thirst quenchers
 - Seasoned buttermilk 
-- Strawberry mint spitzer ![Spitzer](https://dashofsanity.com/wp-content/uploads/2015/02/Strawberry-Mint-2-PS.png =250x)
+- Strawberry mint spitzer
 ### Appetisers 
 - Fresh Pineapple mango salsa
 - Artichoke dip with assorted artisan breads
 ### Main Course 
 - Samosa 
 - Dahi vada 
-- Sabudana khichdi ![Khichdi](https://www.myweekendkitchen.in/wp-content/uploads/2014/06/Sabudana-khichdi.jpg =250x)
+- Sabudana khichdi
 - Coleslaw sandwiches
 ## Dessert
 - Banana chocolate bread 
