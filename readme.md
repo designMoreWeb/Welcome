@@ -1,6 +1,6 @@
 # Welcome Welcome Welcome
 
-The tolia's welcome you to this auspicious occasion of Rakshabandan. We have a delicous food menu today and are looking forward to celebrating with family. We would
+The Tolia's welcome you to this auspicious occasion of Rakshabandan. We have a delicous food menu today and are looking forward to celebrating with family. We would
 also like to welcome Kian to our home for the first time. 
 
 
@@ -17,4 +17,4 @@ also like to welcome Kian to our home for the first time.
 - Coleslaw sandwiches
 ## Dessert
 - Banana chocolate bread 
-- Homemade chocolate ice cream cake 
+- Chocolate Coffee ice cream cake 
