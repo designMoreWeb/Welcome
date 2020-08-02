@@ -9,10 +9,10 @@ also like to welcome Kian to our home for the first time.
 - Seasoned buttermilk 
 - Strawberry mint spitzer
 ### Appetisers 
-- Fresh Pineapple mango salsa
-- Artichoke dip with assorted artisan breads
+- Fresh Pineapple mango salsa and Chips
+- Artichoke dip with artisan breads
 ### Main Course 
-- Samosa 
+- Samosa Chole
 - Dahi vada 
 - Sabudana khichdi
 - Coleslaw sandwiches
