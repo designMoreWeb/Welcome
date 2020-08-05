@@ -1,21 +1,11 @@
-
-![Rakhi](https://image.freepik.com/free-vector/hindu-festival-rakshabandhan-banner_1017-20013.jpg)
-
-The Tolia's welcome you to this auspicious occasion of Rakshabandan. We have a delicous food menu today and are looking forward to celebrating with family. We would
-also like to welcome Kian to our home for the first time. 
-
+Welcome to our home for a fun afternoon
 
 ### Welcome thirst quenchers
-- Seasoned buttermilk 
 - Strawberry mint spitzer
-### Appetisers 
-- Fresh Pineapple mango salsa and Chips
-- Artichoke dip with artisan breads
 ### Main Course 
-- Samosa Chole
-- Dahi vada 
-- Sabudana khichdi
+- Quiona Salad
+- Pasta Salad
 - Coleslaw sandwiches
 ## Dessert
-- Banana chocolate bread 
-- Chocolate Coffee ice cream cake 
+- Banana orange cake 
+- Mango Mouse 
