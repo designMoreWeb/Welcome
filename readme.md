@@ -1,4 +1,7 @@
-Welcome to our home for a fun afternoon
+
+![](https://encounterchurchpa.org/wp-content/uploads/2018/06/SummerHangouts.jpeg)
+
+Welcome to our home for a fun afternoon with friends
 
 ### Welcome thirst quenchers
 
