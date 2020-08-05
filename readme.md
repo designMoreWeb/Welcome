@@ -7,6 +7,11 @@ Welcome to our home for a fun afternoon with friends
 
 - Strawberry mint spitzer
 
+### Appetizers
+ 
+- Mango Pineapple Salasa with Chips
+- Artichoke lemon pesto with breads
+
 ### Main Course 
 
 - Quiona Salad
