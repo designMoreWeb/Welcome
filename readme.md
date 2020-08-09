@@ -5,9 +5,9 @@
 ![](Married.jpg)
 
 
-It is with great pleasure we welcome Karishma and Mittal for an evening filled with memories, fun and laughter as they have begun their journey.
+It is with great pleasure we welcome Karishma and Mittal for an evening filled with memories, fun and laughter as they have begun their journey together. Wishing them lots of love, happiness and prosperity in the coming years.
 
-# TONIGHT'S MENU
+# MENU
 
 ### Welcome thirst quenchers
 
