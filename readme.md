@@ -1,24 +1,36 @@
-
-![](https://encounterchurchpa.org/wp-content/uploads/2018/06/SummerHangouts.jpeg)
-
-Welcome to our home for a fun afternoon with friends
+It is with great pleasure we welcome Karishma and Mittal for an evening filled with memories, fun and laughter as they have begun their journey.
 
 ### Welcome thirst quenchers
 
-- Strawberry mint spitzer
+- Flavoured Water
+- Beers (Corona Setlzers, Pilsner, Modelo)
 
 ### Appetizers
- 
+
+* Mango Lassi and Coffee served upon request with our pleasure 
+
 - Mango Pineapple Salasa with Chips
-- Artichoke lemon pesto with breads
+- Artichoke lemon pesto with Crackers
+- Paneer Tikka
+- Vietnamese rolls 
+- Coleslaw Sandwiches
+
+
+### Salad 
+
+-  Aloo Chaat Salad
+- Pineapple Raita
+
 
 ### Main Course 
 
-- Quiona Salad
-- Pasta Salad
-- Coleslaw sandwiches
+- Chole
+- Corn
+- Daal Fry
+- Assorted Breads (Garlic naan/paratha)
+- Jeera Rice
 
 ## Dessert
 
-- Banana orange cake 
-- Mango Mouse 
+- Chocolate Raspberry Pie 
+- Mango Rasgula Soufflé
